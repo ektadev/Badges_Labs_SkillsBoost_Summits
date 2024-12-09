@@ -1,6 +1,3 @@
-# Badges
-All earned badges
-
 Google Cloud Skills Boost
 https://www.cloudskillsboost.google/public_profiles/b74f4ee4-daa4-4314-b43a-6f58a5cc7ac7
 
