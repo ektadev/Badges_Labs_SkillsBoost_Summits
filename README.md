@@ -5,7 +5,7 @@ Google Cloud Challenge Labs
 https://www.credly.com/users/ekta-srivastava.3d5747da
 
 Google Cloud Summits
-https://www.credential.net/profile/ektasrivastava810215/wallet
+https://www.credential.net/profile/ektasrivastava984312/wallet
 
 Hackerrank
 https://www.hackerrank.com/ektasri54
