@@ -7,6 +7,12 @@ https://www.credly.com/users/ekta-srivastava.3d5747da
 Google Cloud Summits
 https://www.credential.net/profile/ektasrivastava984312/wallet
 
+Pro5 Product Management AI Certificate
+https://app.pro5.ai/certificates/1748874654843x801183599789520000?utm_medium=email&_hsenc=p2ANqtz--QX03RX4DxecIDfSPcNTCLkX7vJko7zpyVuP9HdnAm-q-Awr1qlnTQXfTjNlKgJ_G-EyNyADSgwmAGzvGKqMKWc-tmC7RFPS0zakyoj8es9Jlq8vo&_hsmi=215420480&utm_content=215420480&utm_source=hs_automation
+
+All LinkedIn Licenses/Certifications
+https://www.linkedin.com/in/ekta-srivastava-safeai/details/certifications/
+
 Hackerrank
 https://www.hackerrank.com/ektasri54
 
