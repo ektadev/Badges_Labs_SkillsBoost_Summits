@@ -19,5 +19,5 @@ https://www.hackerrank.com/ektasri54
 Leetcode
 https://leetcode.com/u/ektadev/
 
-Bronze League
+Silver League
 https://www.cloudskillsboost.google/public_profiles/9753538d-7566-48a1-9f79-b9fe9e13c9d6
