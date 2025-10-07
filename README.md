@@ -10,10 +10,10 @@ https://www.credly.com/users/ekta-srivastava.44f7658c/skills
 Gold League
 https://www.cloudskillsboost.google/public_profiles/9753538d-7566-48a1-9f79-b9fe9e13c9d6
 
-Google Cloud Skills Boost
+All Google Cloud Skills Boost Badges
 https://www.cloudskillsboost.google/public_profiles/b74f4ee4-daa4-4314-b43a-6f58a5cc7ac7
 
-Google Cloud Asia Pacific Summits
+All Google Cloud Asia Pacific Summits
 https://www.credential.net/profile/ektasrivastava984312/wallet
 
 Pro5.ai Product Management AI Certificate
