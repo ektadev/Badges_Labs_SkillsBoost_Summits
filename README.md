@@ -7,7 +7,7 @@ https://www.credly.com/users/ekta-srivastava.44f7658c/badges#credly
 All Credly Skills Wallet
 https://www.credly.com/users/ekta-srivastava.44f7658c/skills
 
-Gold League
+Diamond League
 https://www.cloudskillsboost.google/public_profiles/9753538d-7566-48a1-9f79-b9fe9e13c9d6
 
 All Google Cloud Skills Boost Badges
